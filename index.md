@@ -2,7 +2,7 @@
 
 Mainly, the puddin boyz make rice pudding. Here is their most recent [recipe](http://cooking.nytimes.com/recipes/1014636-rice-pudding-with-golden-raisins), courtesy of melissa clark.
 
-### *Ingredients*
+### Ingredients
 
 3 ½ cups whole milk
 ¼ cup heavy cream
