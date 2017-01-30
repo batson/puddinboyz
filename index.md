@@ -4,15 +4,15 @@ Mainly, the puddin boyz make rice pudding. Here is their most recent [recipe](ht
 
 ### Ingredients
 
-3 ½ cups whole milk
-¼ cup heavy cream
-⅓ cup light brown sugar
-½ cup long-grain white rice
-¼ teaspoon salt
-1 vanilla bean, split
-1 cinnamon stick AND 4 cardamom pods
-1 strip orange peel, 1-inch wide
-⅓ cup golden raisins (optional, jesse hates these.)
+* 3 ½ cups whole milk
+* ¼ cup heavy cream
+* ⅓ cup light brown sugar
+* ½ cup long-grain white rice
+* ¼ teaspoon salt
+* 1 vanilla bean, split
+* 1 cinnamon stick AND 4 cardamom pods
+* 1 strip orange peel, 1-inch wide
+* ⅓ cup golden raisins (optional, jesse hates these.)
 
 ### Preparation
 
