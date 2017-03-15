@@ -1,5 +1,3 @@
-# PuDDiN BoyZ
-
 Mainly, the puddin boyz make rice pudding. Here is their most recent [recipe](http://cooking.nytimes.com/recipes/1014636-rice-pudding-with-golden-raisins), courtesy of melissa clark.
 
 ### Ingredients
